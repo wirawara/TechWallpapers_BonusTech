@@ -1,1 +1,1 @@
-Wallpapers for the smartphone. 🏔️ 🌊 🌄 📱
+Wallpapers for a smartphone. 🏔️ 🌊 🌄 📱
