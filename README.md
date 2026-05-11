@@ -1,3 +1,3 @@
-Wallpapers for a smartphone. 🏔️ 🌊 🌄 📱 (that's me by the way)
+Wallpapers for a smartphone. 🏔️ 🌊 🌄 📱 (that's me by the way as a Barbie)
 
 ![alt text](https://res.cloudinary.com/dxjtztwfu/image/upload/v1778510111/New_Note_2_yeg5sq.jpg)
